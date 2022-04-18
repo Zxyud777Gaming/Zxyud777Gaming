@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zxyud777Gaming
+- 👀 I’m interested in Gaming
+- 🌱 I’m currently learning Gaming
+- 💞️ I’m looking to collaborate on Gaming
+- 📫 How to reach me Discord at JenZ@2842
